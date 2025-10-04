@@ -1,0 +1,1 @@
+Ссылка на проект, реализованный в Figma: https://www.figma.com/design/reVhp1PzvFnFABT4VQ74xm/%D0%A6%D0%B2%D0%B5%D1%82%D0%BE%D1%87%D0%BD%D1%8B%D0%B9-%D0%BC%D0%B0%D0%B3%D0%B0%D0%B7%D0%B8%D0%BD-%D0%A0%D0%9A%D0%98%D0%A1?node-id=0-1&t=FcASEAEZNnOCRLiv-1
